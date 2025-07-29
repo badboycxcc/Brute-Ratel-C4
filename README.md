@@ -1,6 +1,6 @@
 # Brute-Ratel-C4
 
-## 1.7.4 not cracked
+## 1.7.3 not cracked
 
 https://github.com/badboycxcc/Brute-Ratel-C4/releases/tag/1.7.3 
 
